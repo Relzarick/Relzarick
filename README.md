@@ -1,1 +1,1 @@
-js, css, c#
+age without growth is just time passing
